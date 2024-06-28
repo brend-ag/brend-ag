@@ -1,4 +1,4 @@
-## Hi, I'm Brenda! ${\textsf{\color{Purple}(they/them)}}$
+## Hi, I'm Brenda! 
 
 ### 🌟 About Me 
 
